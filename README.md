@@ -1,2 +1,2 @@
 # expert-meme
-Only expert memes.
+Only elite memes
